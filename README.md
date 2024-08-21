@@ -26,4 +26,4 @@ Connect with me and explore more of my work:
 - [Dribbble](https://dribbble.com/adohere)
 
 
-📫 You can also reach me via email at hello@kojiado.com
+📫 You can also reach me via email at hi@adohere.com
